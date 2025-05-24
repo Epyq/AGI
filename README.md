@@ -40,7 +40,7 @@ We seek collaboration only with serious, trusted partners committed to ethical A
 ## Contact
 
 For partnership discussions or further inquiries, please reach out through secure, verified channels.
-
+[📧Email](mailto:auctions.of.the.millennium@gmail.com)  
 ---
 
 *Prepared by the EpyQ Group*  
