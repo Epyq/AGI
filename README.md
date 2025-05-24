@@ -17,7 +17,7 @@ This document outlines the Artificial General Intelligence (AGI) Blueprint devel
 
 ---
 
-## Dream List 3.0: Influential AI Organizations & Key Contacts
+## Strategic Acquisition Candidates
 
 Inspired by and benchmarking against leading AI and AGI organizations and their top researchers:
 
